@@ -1,1 +1,1 @@
-# -CNTT2-_-NMCNTT-_-Session-6-_-B-i_luy-n_t-p-
+https://docs.google.com/document/d/1EtwlwSwUh57p7NMH3K6zo6l6V_uR5BzafBkRMlu3ajo/edit?usp=sharing
